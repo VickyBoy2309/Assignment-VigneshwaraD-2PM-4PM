@@ -1,2 +1,2 @@
-# Assignment - Vigneshwara D - 2 PM - 4 PM
+# Assignment - Vigneshwara D
 Assignments 
